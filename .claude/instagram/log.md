@@ -1,1 +1,1 @@
-2026-11-25 | Reel | formula: Deadline/Command (hook #19-style, scored 80) | "Pray for 60 seconds before your first notification."
+2026-11-25 | Reel (scheduled Thu 26 Nov, PRAY shirt) | formula: command with deadline, hook 87 | "Pray for 60 seconds before your first notification."
