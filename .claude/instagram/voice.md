@@ -38,7 +38,7 @@ These should start real conversations, not manufactured controversy.
 
 ## Proof I can use
 
-- DK FaithWear is a Ghanaian Christian apparel brand and has officially launched.
+- DK FaithWear is a Ghanaian Christian apparel brand, established 2026, and has officially launched.
 - I run the business on my own.
 - Small batch production: blank clothing plus local printing services.
 - Instagram and TikTok are the main platforms.
